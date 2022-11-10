@@ -7,9 +7,9 @@ And in the *night* he dreamt of ***pepperonis***
 
 Le matin arrive et **OOGIE Boogie** a toujours faim.
 
-Quand soudain, une **ENORME** milles pattes, se trémousse devant lui. 
+Quand soudain, un **ENORME** milles pattes, se trémousse devant lui. 
 
-*ni une ni deux* **OOgie Boogie** l'attrappe au vol et *l'avale goulument*.
+*ni une ni deux* **OOgie Boogie** l'attrape au vol et *l'avale goulument*.
 
 Manger un si **ENORME** milles pattes à rendu malade notre cher **OOGIE Boogie**.
 
@@ -23,6 +23,6 @@ La porte s'ouvre et il voit un homme d'environ 3 mètres.
 
 Son chapeau lui fait 1 mètre de haut.
 
-*OOgie Boogie* s'écrie : "Whoa la la la la"
+*OOgie Boogie* s'écrie : "Whoa la la la la" !
 
 
