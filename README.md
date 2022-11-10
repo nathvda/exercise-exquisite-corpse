@@ -18,3 +18,11 @@ Il enfile son manteau et se dépêche de trouver un médecin.
 Sur son trajet, une découverte **INCROYABLE**. 
 
 Une pizzeria avec un menu "*Cookie and Pepperonis*".
+
+La porte s'ouvre et il voit un homme d'environ 3 mètres. 
+
+Son chapeau lui fait 1 mètre de haut.
+
+*OOgie Boogie* s'écrie : "Whoa la la la la"
+
+
